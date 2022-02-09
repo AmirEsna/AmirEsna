@@ -4,5 +4,5 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m programmer.
+- 🔭 I’m Android Programmer and I Love my job;
 - 
