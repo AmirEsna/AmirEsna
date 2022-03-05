@@ -4,5 +4,5 @@
 
 Here are some ideas to get you started:
 
+A Teenager Programmer with a lot of motivation...
 - 🔭 I’m Android Programmer and I Love my job;
-- Follow please,I make up for you.
